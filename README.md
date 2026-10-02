@@ -1,6 +1,6 @@
 # Política de Privacidad de Impulsate
 
-**Última actualización:** 
+**Última actualización:** 2 de octubre de 2026
 
 ## 1. Introducción
 
